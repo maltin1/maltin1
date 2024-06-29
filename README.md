@@ -1,6 +1,5 @@
 ## Hi there 👋
-
-![descarga](https://github.com/maltin1/maltin1/assets/132960528/046991ce-95e7-4844-bcdb-b7e1d93a75a2)
+![tumblr_occujlvMQE1qze3hdo1_500_gif (GIF 画像, 500x288 px)](https://github.com/maltin1/maltin1/assets/132960528/cccf8a83-59a0-498b-baf8-9f47220b7445)
 
 <!--
 **maltin1/maltin1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
